@@ -8,5 +8,6 @@ en donde mis funciones eran generar estrategias para el manejo de la pandemia, e
 para las diferentes tareas que me eran encomendades
 si deseas saber mas de mi, o tienes algun proyecto que deseas materalizar 
 puedes contactarme a mi email christ.donoso@gmail.com.
+ademas puedes revisar mi linkedin https://www.linkedin.com/in/christian-raul-donoso-aguilar-5017b7186/
 
 nos vemos!!
